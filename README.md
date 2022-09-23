@@ -1,0 +1,2 @@
+# hafta1
+ ödevler
